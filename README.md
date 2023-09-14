@@ -41,4 +41,4 @@ I get excited about opportunities where I'm able to work with highly creative pe
 
 😄 My Interests: Cooking new cuisines (currently most interested in Korean cuisine), Reading (currently reading Life 3.0 by Max Tegmark and my favourite is Crime and Punishment by Dostoevsky).
 
-📫 How to reach me: Please feel free to reach me at my email (LeenAlzebdeh1@gmail.com) or by phone number (825 343 6530)
+📫 How to reach me: Please feel free to reach me at my email (LeenAlzebdeh1@gmail.com) 
