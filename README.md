@@ -16,6 +16,7 @@ Here are some ideas to get you started:
 -->
 
 I'm an aspiring Software Developer in my fourth year of computing science at the University of Alberta. 
+
 🌐 Feel free to visit my [portfolio](https://leenzebdeh.github.io/) website to learn more about my work! Here are a few examples:
 
 ✅ Collaborated in a 7-member team to develop and deploy a business website for Zero RampUp using JavaScript.
