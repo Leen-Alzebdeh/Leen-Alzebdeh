@@ -40,6 +40,6 @@ I get excited about opportunities where I'm able to work with highly creative pe
 
 🌱 I’m currently learning natural language processing (NLP) techniques and reinforcement learning (RL) and always looking to collaborate with someone on projects covering these topics!
 
-😄 My Interests: Cooking new cuisines (currently most interested in Korean cuisine), Reading (currently reading Life 3.0 by Max Tegmark and my favourite is Crime and Punishment by Dostoevsky).
+😄 My Interests: Cooking new cuisines (currently most interested in Korean cuisine), Reading (my favourite is Crime and Punishment by Dostoevsky).
 
 📫 How to reach me: Please feel free to reach me at my email (LeenAlzebdeh1@gmail.com) 
